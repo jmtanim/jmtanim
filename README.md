@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Design projects
 - 📫 Reachout me ia.jobayermahamud@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: Ispite of learning design, I want to be a bussinessman
 
 <!---
 jmtanim/jmtanim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
